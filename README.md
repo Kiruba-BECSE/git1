@@ -1,4 +1,4 @@
-## Hi 👋 I'm Krbz
+## Hi 👋 I'm Kiruba Krishnamoorthy
 
 🎓 BE Computer Science & Engineering Student  
 💻 Aspiring Software Engineer | AI & ML Enthusiast  
