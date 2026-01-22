@@ -36,8 +36,8 @@ To secure a challenging role as a **Software Engineer / ML Engineer** where I ca
 ---
 
 ### 📫 Connect With Me
-- LinkedIn: *(add your link)*  
-- Email: *(optional)*  
+- LinkedIn: *(https://www.linkedin.com/in/kiruba-krishnamoorthy/)*  
+- Email: *(kirubakeerthi2006@gmail.com)*  
 
 ---
 
